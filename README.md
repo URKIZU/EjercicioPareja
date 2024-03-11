@@ -1,1 +1,2 @@
 # EjercicioPareja
+hola vero contestame: 
